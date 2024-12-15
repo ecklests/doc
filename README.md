@@ -1,4 +1,4 @@
-Thank you and sorry I read this a while ago but couldn't figure out how to approach this. This reply is long but I do feel like talking to someone about it and would appreciate your patience reading through it (and it’s totally fine it you don’t), and maybe read whenever you feel like it.
+Thank you and sorry I read your message a while ago but couldn't figure out how to approach it. This reply is long but I do feel like talking to someone about it and would appreciate your patience reading through it (and it’s totally fine it you don’t), and maybe read whenever you feel like it.
 
 In short, I’m intending on going private whenever I won’t be posting in a while. Don’t have my mind settled on it yet so this time is just a trial. Also forgive me for being everywhere through this, wrote it while working on other staff and I’ve never thought thoroughly on how to collect myself and put it down into words.  
 
